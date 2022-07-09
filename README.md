@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @JerryAlanis
+- 👀 I’m interested in web3, BLOCKCHAIN and all the things that we can use to help this world...
+- 🌱 I’m currently learning about self development, fináncial education and bussiness  ...
+- 💞️ I’m looking to collaborate with the best léadership of the world to créate great bussiness ...
+- 📫 How to reach me 
+Instagram @gerardoalanisgzz
+Twitter   @JerryAlanis11
+Telegram  @JerryAlanis ...
+
+<!---
+JerryAlanis/JerryAlanis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
